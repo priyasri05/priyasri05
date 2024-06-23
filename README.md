@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on Open source projects.
 - 😄 Pronouns: she/her.
 - ⚡ Fun fact: I like to connect with people.
-- 📫 How to reach me:
+
   
 
 
